@@ -34,7 +34,7 @@
 
 [國會調查兵團](https://www.cic.tw)
 
-[蒂瑪小姐咖啡館部落格](https://democracydecafe.wordpress.com)
+[蒂瑪小姐咖啡館部落格](https://democracydecafe.wordpress.com)  
 [蒂瑪小姐咖啡館FB粉絲頁](https://www.facebook.com/DemocracydeCafe)
 
 [公民廟口](https://www.facebook.com/CitizensMiaokou)
